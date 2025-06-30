@@ -1,4 +1,4 @@
-How to Set Up a VIZIO Account
+How to Set Up a VIZIO Account Easily ?
 =============================
 
 Get Started with SmartCast, Streaming Apps, and More
